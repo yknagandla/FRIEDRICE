@@ -1,0 +1,2 @@
+# FRIEDRICE
+today menu
